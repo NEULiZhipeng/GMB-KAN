@@ -1,2 +1,0 @@
-# GMB-KAN
-GMB-KAN
